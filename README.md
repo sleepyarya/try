@@ -1,2 +1,3 @@
 halodek
-aku hacker tzy
+aku hacker tzy 
+aku ? bluetooth?
