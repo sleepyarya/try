@@ -1,3 +1,3 @@
 halodek
 aku hacker tzy 
-aku ? bluetooth?
+aku ? bluetooth?dedideijdeijd
